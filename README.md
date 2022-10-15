@@ -1,9 +1,9 @@
 13/10/2022
 gia su: Nguyen 
-tÙi Nguy?n Th? Lan Anh 5 nam n?a s? tr? th‡nh
+t√¥i Nguyen Thi Lan Anh 5 nam nua se tro th√†nh
 
-- T? ch? v? t‡i chÌnh, cham sÛc du?c cho m?, lo du?c cho em
-- L‡m vi?c ph‚n tÌch d? li?u cho m?t cÙng ty ? Vi?t Nam
-- M?c luong 40-50 tri?u/ th·ng
-- CÛ ch? ? c? d?nh v‡ nuÙi th˙ cung
-- Tr? th‡nh m?t ngu?i cÛ Ìch
+- Tu chu ve t√†i ch√≠nh, cham s√≥c duoc cho me, lo duoc cho em
+- L√†m viec ph√¢n t√≠ch du lieu cho mot c√¥ng ty Viet Nam
+- Muc luong 40-50 trieu/ th√°ng
+- C√≥ cho o co dinh v√† nu√¥i th√∫ cung
+- Tro th√†nh mot nguoi c√≥ √≠ch
